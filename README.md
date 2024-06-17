@@ -1,1 +1,1 @@
-# MinhaGaleria
+# MinhaGaleria 🖼️
